@@ -19,4 +19,6 @@ ___
 ## Credits:
 * FelliX - Creator of fanmade FNF Midi songs
 
-![](https://logodownload.org/wp-content/uploads/2017/11/discord-logo-8-1.png)
+Discord: FelliX#7033
+Twitter: @FelliX768
+Youtube:
